@@ -1,4 +1,3 @@
-Rafael é´um excelente professor lindo e mravilhoso
-Rafael é´um excelente professor lindo e mravilhoso
+o
 # Frontend
-Vocês erraram tudo.
+LUIS É UM ÓTIMO PROFESSOR
